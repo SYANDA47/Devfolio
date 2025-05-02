@@ -5,5 +5,5 @@ Get in Touch: Contact me directly via email or through the provided contact form
 
 
 Contact
-If you have any questions or feedback, feel free to reach out to me at jacobmuema02@gmail.com.
+If you have any questions or feedback, feel free to reach out to me at 0798432932.
 
